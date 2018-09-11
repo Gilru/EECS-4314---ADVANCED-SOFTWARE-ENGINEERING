@@ -2,8 +2,8 @@
 
 Group Names
 
-Khanak <br>
+Akbar Khan <br>
 Gilbert Andze Tsoungui<br>
 Asma Hassan<br>
-Andrew Lnigh-Fuoco<br>
+Andrew Laniak-Fuoco<br>
 Rabia Ejaz<br>
